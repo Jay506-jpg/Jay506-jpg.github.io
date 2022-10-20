@@ -1,2 +1,2 @@
-# Jay506.jpg.github.io
+# Jay506-jpg.github.io
 My portfolio
